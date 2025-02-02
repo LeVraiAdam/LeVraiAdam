@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LeVraiAdam
 - 👀 I’m interested in video games, manga and other
 - 💞️ I’m looking to collaborate on a Minecraft server
-- 📫 How to reach me : Discord : samoura2.0
+- 📫 How to reach me : Discord : levrai_adam
 - ⚡ Fun fact: I'm french !
 
 <!---
